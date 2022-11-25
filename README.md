@@ -1,1 +1,0 @@
-# maltiplications-table
